@@ -7,7 +7,7 @@ Ali Sahin Balikci /
 e-mail: alisahinbalikci@gmail.com
 
 Gokay Atay /
-e-mail: gokay.atay@acettepe.edu.tr
+e-mail: gokay.atay@hacettepe.edu.tr
 
 Sena Berre Ceylan /
 e-mail: senaceylan2006@gmail.com
